@@ -1,4 +1,4 @@
-# 
+# automatic Windscribe VPN for PC | Windscribe VPN for Windows Service | no-logs-policy + high-speed-servers offers the most advanced Windscribe VPN for PC | Windscribe VPN for
 
 
 
